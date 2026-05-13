@@ -1,4 +1,4 @@
-# 
+# quantitative nft mint bot | multi-chain-support + auto-sell offers the most advanced nft mint bot, with multi-chain-support and auto-sell. Ideal for professional NFT traders and
 
 
 
